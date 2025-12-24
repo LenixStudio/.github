@@ -1,1 +1,1 @@
-![](https://githubcard.com/lenixdev.svg?d=P1aEl0wr)
+![](https://githubcard.com/lenixstudio.svg?d=P1aEl0wr)
